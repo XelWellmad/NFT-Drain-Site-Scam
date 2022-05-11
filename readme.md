@@ -10,7 +10,7 @@ ALL THESE SCAMMERS DO `dualwallet` with `backdoor`, don't trust these kinds of p
 🎓 Note: if you want to buy real template which really work,
 join us here [Telegram](https://t.me/NFTDRAINGANG)
 
-
+ 
 # ⚠️ All DRAINERS ON GITHUB HAVE A BACKDOOR WITH ANOTHER WALLET. HERE IS SOME PROOF. LEGIT STUFF ONLY ON TELEGRAM: @NFTDRAINGANG
 
 ## 🖼️ 1 Scammer: C4lme Github: github.com/C4lme
