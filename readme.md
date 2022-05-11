@@ -6,7 +6,7 @@ ALL THESE SCAMMERS DO `dualwallet` with `backdoor`, don't trust these kinds of p
 
 ## This is the dualwallet
 ![image](https://user-images.githubusercontent.com/103531256/164218655-884f09c9-30b3-4506-bb69-fe9293b78aee.png)
-
+ 
 🎓 Note: if you want to buy real template which really work,
 join us here [Telegram](https://t.me/NFTDRAINGANG)
 
