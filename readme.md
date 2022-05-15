@@ -1,7 +1,7 @@
 
 
 ALL THESE SCAMMERS DO `dualwallet` with `backdoor`, don't trust these kinds of people who sell you shit for a small price so that they get this.
-
+ 
 ![image](https://user-images.githubusercontent.com/103531256/164218636-2ec42685-bab8-4b1f-b29c-6d055cbe2dfe.png)
 
 ## This is the dualwallet
